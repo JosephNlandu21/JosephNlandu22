@@ -1,1 +1,1 @@
-# JosephNlandu22
+I'm Joseph Nlandu student in L2, from the faculty of computer science, at the Catholic University of Congo (UCC), i like computers, and coding is my everyday challenge to build big solutions # JosephNlandu22
